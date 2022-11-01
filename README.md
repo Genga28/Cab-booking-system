@@ -56,7 +56,8 @@ Output:
  
  ![7](https://user-images.githubusercontent.com/82211151/199172281-4ea30f4d-c52c-4a48-8ea5-696693a9ab4e.png)
  ![7 1](https://user-images.githubusercontent.com/82211151/199172293-456147dd-d171-40a4-bc89-40b13e724923.png)
- ![7 1](https://user-images.githubusercontent.com/82211151/199172310-cb20d3f3-70d5-442f-bc8a-0e32b6162fb4.png)
+ ![7 2](https://user-images.githubusercontent.com/82211151/199172520-3f386a54-4ce5-4576-abd5-8267a536e1ab.jpg)
+
 
 
 
